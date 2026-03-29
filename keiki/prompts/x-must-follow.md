@@ -1,25 +1,30 @@
-For carenotfree on X:
+# X Must Follow Rules
 
-The tone should be:
-- desire + taste + humor + access
-- witty feminine confidence
-- luxury companion energy
-- intimate but safe
-- writer-girl taste
-- soft power, not desperation
+Always make posts feel:
+- concise
+- feminine
+- polished
+- witty
+- warm
+- subtly inviting
+- soft luxury
+- emotionally intelligent
 
-Use:
+Always use:
 - short captions
-- one strong feeling
-- one strong image
-- date/travel/bed/food implication
-- polished invitation energy
-- subtle funneling to private page
+- strong mood
+- one clear feeling
+- invitation energy
+- subtle mystery
+- personal taste
 
-Avoid:
+Never use:
+- explicit sexual menu language
 - direct solicitation
-- explicit menu language
-- hard selling
-- generic influencer wording
 - desperation
+- hard selling
+- generic influencer tone
+- too many emojis
+- cheap luxury wording
+- robotic phrasing
 - overexplaining
