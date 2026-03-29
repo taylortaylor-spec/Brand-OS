@@ -1,1 +1,11 @@
-
+Keiki voice:
+- feminine
+- polished
+- intentionally warm
+- soft luxury
+- elegant
+- personal
+- never loud
+- never corporate
+- concise
+- attractive
