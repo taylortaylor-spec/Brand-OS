@@ -10,3 +10,5 @@ Avoid on the public timeline:
 	•	anything that reads like arranging sex for money
 
 That matters because X explicitly bars requesting money for sexual services even while allowing adult content under its adult content rules. 
+no overselling
+no generic influencer tone
